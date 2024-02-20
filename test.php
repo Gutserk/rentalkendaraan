@@ -1,1 +1,0 @@
-Halo saya Mirza Ardanas dari Kelas IF 2D dengan NIM 3312301114
